@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### Hey :wave:, I'm moletop  from Xi'an, China.
 
 
